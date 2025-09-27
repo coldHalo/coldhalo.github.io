@@ -1,2 +1,2 @@
 # coldhalo.github.io
-idk bruh
+im pretty tuff tbh
